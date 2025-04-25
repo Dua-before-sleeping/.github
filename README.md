@@ -2,12 +2,6 @@
 
 Sleeping is not only a time for rest, but also an opportunity for spiritual reflection and connection with Allah (SWT). Reciting the **dua before sleeping** is a powerful practice that brings tranquility to the heart and protection for the soul. The **dua before sleeping** includes supplications and recitations from the Holy Quran and Hadith, which help shield the believer from harm, promote peaceful sleep, and draw them closer to Allah. In this article, we will explore the essential **dua before sleeping**, its benefits, and the correct way to recite it, with both the Arabic verses, their Urdu translations, and English meanings.
 
-1 [Dua before sleeping](https://islamicdoor.com/dua-before-sleeping/)
-
-r
-
-[site waqt ki dua](https://surahyasin.org/sote-waqt-ki-dua/)
-
 ## 1. Dua for Protection and Peace Before Sleep
 
 **Arabic Text**:
